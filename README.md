@@ -1,4 +1,4 @@
-## Hi there 👋
+## If you want to know more contact me.
 
 <!--
 **MAXezD/MAXezD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
